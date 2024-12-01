@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...private
 - 💞️ I’m looking to collaborate on Long-term 
 - 📫 How to reach me ...+254 708115669
-  
+  - moogijonah2@gmail.com 
   
 
 <!---
